@@ -1,4 +1,4 @@
-
+updated MindManager for Windows Workflow | templates + mind-map-creation offers the most advanced MindManager for Windows workflow, with templates and mind-map-creation. Ideal for
 
 
 
